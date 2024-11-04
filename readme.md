@@ -3,7 +3,7 @@
 I'm a nobody that sometimes uses his keyboard.
 
 - I'm always looking for people to work with on eCom projects.
-+ a lot more ;)
++ I'm a professional jester.
 
 ## Skills
 
