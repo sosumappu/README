@@ -1,6 +1,6 @@
 ## Hey! 👋
 
-I'm a nobody that sometimes uses his keyboard.
+I'm a triathlete that sometimes uses his keyboard.
 
 - I'm always looking for people to work with on eCom projects.
 + I'm a professional jester.
